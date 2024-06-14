@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CreativeMindstorms
+- 👀 I’m interested in Lego and Programming
+- 🌱 I’m currently learning Python
+- 📫 How to reach me: creativemindstorms1@gmail.com
+- ⚡ Fun fact: I have a YouTube channel: https://www.youtube.com/c/creativemindstorms
