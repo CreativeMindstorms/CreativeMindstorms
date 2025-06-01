@@ -4,7 +4,7 @@
 - 📫 How to reach me: creativemindstorms1@gmail.com
 - ⚡ Fun fact: I have a YouTube channel: https://www.youtube.com/c/creativemindstorms
 
-If you enjoy what I do and would like to support future creations, consider [buying me a coffee](https://buymeacoffee.com/creativemindstorms)!
+If you enjoy what I do and would like to support future creations, consider buying me a [🧱 Lego brick](https://buymeacoffee.com/creativemindstorms)!
 
 Every contribution helps fund new machines and videos on YouTube!
 
